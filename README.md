@@ -10,7 +10,7 @@
 
 - 🎓 Studies for Electrical & Electronic Engineering at [South EasternUniversity of Sri Lanka](https://seu.ac.lk/)
 
-- 🏡'Lives in **Dalugama Sri Lanka**
+- 🏡'Lives in **Embilipitiya Sri Lanka**
 - ⚡ **Fun Facts** : 🍕 🏉 🏏 🎥 🚞
 
 <br>
